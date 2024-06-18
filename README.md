@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>Hii, I am Arya02B <br>I am interested in web designing <br>I am currently learning Computer science <br>Linkdin -https://www.linkedin.com/in/aryadev01<br>
+<br>Hii, I am Arya Singh <br>I am interested in web designing <br>I am currently learning Computer science <br>Linkdin -https://www.linkedin.com/in/aryadev01<br>
 
 
 ## 🌐 Socials:
